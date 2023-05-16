@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Front-end Project<br>I'm currently learning Data Structures and Algorithms<br>Fun Fact-I ❤ Anime
+Ojjuas Gupta<br>I'm currently working on Front-end Project<br>I'm currently learning Data Structures and Algorithms<br>Fun Fact- I ❤ Anime
 
 
 ## 🌐 Socials:
