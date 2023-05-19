@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **ojjuas4453@gmail.com**
 
-- 📄 Know about my experiences [https://ojjuasgupta.netlify.app/assets/images/Resume_OJJUAS_GUPTA-1.png](https://ojjuasgupta.netlify.app/assets/images/Resume_OJJUAS_GUPTA-1.png)
+- 📄 Know about my experiences [https://ojjuasgupta.netlify.app/assets/images/Resume_OJJUAS_GUPTA-1.png](https://ojjuasgupta.netlify.app/assets/images/Resume_OJJUAS_GUPTA1.png)
 
 - ⚡ Fun fact **I ❤ ANIME**
 
